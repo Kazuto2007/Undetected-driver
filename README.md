@@ -1,4 +1,2 @@
-# Undetected-driver
-Hey, this driver is UD  if u need help feel free to dm me.
-Im always there to help new people my discord: Kazuto911 
-.
+Hey, the driver is not Undetected anymore but this is an great base to make one!
+If you have questions you can reach me on my Discord : kazuto911
